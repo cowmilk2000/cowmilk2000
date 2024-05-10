@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @cowmilk2000 aka Luca
+- 👋 Hi, I'm Luca
 - 👀 I’m interested in cybersecurity
 - 🌱 I’m currently learning nothing just school
 - 💞️ I’m looking to collaborate on ...
