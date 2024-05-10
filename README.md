@@ -1,7 +1,7 @@
 - 👋 Hi, I'm Luca
 - 👀 I’m interested in cybersecurity
 - 🌱 I’m currently learning nothing just school
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on cybersecurity
 - 📫 How to reach me lvmalik416@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: I love to swim
